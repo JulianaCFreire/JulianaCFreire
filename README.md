@@ -4,5 +4,5 @@
 - 🌱 Estudando Java....
 - 📫 Você me encontra no email jufreire00@gmail.com 
 - 😄 Pronome: ela/dela...
-- ⚡ Curiosidades: Sou estudante, esposa, madrasta, zeladora de escola, e almejo minha primeira oportunidade naquilo que mais amo ... ❣️ Tecnologia ❣️ 
+- ⚡ Curiosidades: Sou estudante, esposa, madrasta, e almejo minha primeira oportunidade naquilo que mais amo ... ❣️ Tecnologia ❣️ 
 -->
